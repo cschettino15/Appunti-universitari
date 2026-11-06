@@ -1,1 +1,1 @@
-
+La cartella non contiene materiale didattico poiché l’esame prevede la realizzazione di un progetto, la cui valutazione si basa sulla conoscenza e sulla comprensione degli aspetti teorici ad esso correlati.
